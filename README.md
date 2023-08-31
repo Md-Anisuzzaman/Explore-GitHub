@@ -1,1 +1,1 @@
-#1. How to explore something
+#1. How to explore something to write
